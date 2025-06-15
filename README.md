@@ -21,3 +21,17 @@
 2.https://cn.nikkei.com/politicsaeconomy/epolitics/57613-2024-12-24-10-45-40.html
 
 3.https://user.guancha.cn/main/content?id=1379639
+
+另（5000W人口以上）：
+
+1.德国：54966美元
+
+2.英国：52000美元
+
+3.法国：47713美元
+
+4.意大利：38200美元
+
+5.韩国：36000美元
+
+6.土耳其：15463美元
