@@ -1,6 +1,6 @@
 # Ranking of countries with a population of over 100 million in terms of GDP per capita in 2024 (over $10,000)
 
-人口过亿2024年国家人均GDP排名（一万美元以上）：
+人口过亿国家2024年人均GDP排名（一万美元以上）：
 
 1.美国：85400美元（2023年）
 
